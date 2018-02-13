@@ -1,1 +1,0 @@
-# irostyslav.github.io
